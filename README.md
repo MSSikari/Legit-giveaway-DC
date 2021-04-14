@@ -3,7 +3,7 @@ Also if you join you will get the latest nofication as soon as i upload a link o
 
 Legit Rewards -  https://discord.gg/Fy2HmeXuzX
 Spicy Rewards -  https://discord.gg/tPbxqgqDxA
-Flasy Universe-  https://discord.gg/3mt2MmFmeZ
+Flash Universe-  https://discord.gg/3mt2MmFmeZ
 
 
 
