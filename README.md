@@ -7,4 +7,4 @@ Flasy Universe-  https://discord.gg/3mt2MmFmeZ
 
 
 
-Join now for more rewards also a chance of nitro event going onn
+Join now for more rewards 
